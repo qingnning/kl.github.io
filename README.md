@@ -4,7 +4,7 @@
 
   
 ##有问题反馈
-在使用中有任何问题，欢迎反馈给我，可以加群[向着星辰与深渊](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=Y7y1-d_2LMPw2AS5266G6s_XTzkboqgL&authKey=unjXbRzhlqvBAi86ho7G2VLZnk6wNXbcFFGHj810vKr1A2wclvBCVM0UpKK9ng8r&noverify=0&group_code=167147333) 跟我交流
+在使用中有任何问题，欢迎反馈给[我](https://qm.qq.com/q/QDb6Ft0t6C)，可以加群[向着星辰与深渊](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=Y7y1-d_2LMPw2AS5266G6s_XTzkboqgL&authKey=unjXbRzhlqvBAi86ho7G2VLZnk6wNXbcFFGHj810vKr1A2wclvBCVM0UpKK9ng8r&noverify=0&group_code=167147333) 跟我交流
 
 
 
